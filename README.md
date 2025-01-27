@@ -61,5 +61,8 @@ You should look at Matrix-PIC fix if you don't care for huffing enamel smoke.
 (F.Y.I. Don't play games on DVD-+RW, ask me how I konw.)  
 
 
+https://archive.md/20201112142148/https://www.obscuregamers.com/threads/how-to-create-a-working-playstation-2-master-cd-r-or-dvd-r-image.772/
+
+
 
   
